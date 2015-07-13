@@ -1,2 +1,0 @@
-# preguntas
-gabry herrera
